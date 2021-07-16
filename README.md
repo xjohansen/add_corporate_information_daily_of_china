@@ -4,3 +4,6 @@
 以后有时间将会每周或者每2周增量更新一次  
 如有不合适，请联系我删除   
 
+Can you give a email box or QQ,please talk about Enterprise-Registration-Data-of-Chinese-Mainland?
+my qq 11029 20 350
+did you update all of 2019?
